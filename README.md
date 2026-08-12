@@ -1,1 +1,1 @@
-# gaeunspinkypage.github.io
+# Gaeun's Pinky Page
